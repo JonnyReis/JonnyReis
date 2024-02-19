@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JonnyReis
 - 👀 I’m interested in ...[istanbulrides.com](https://istanbulrides.com/istanbul-airport-taxi-transfers/)
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...https://istanbulrides.com/antalya-aiport-taxi-child-seat/
 - 💞️ I’m looking to collaborate on ...website projects
 - 📫 How to reach me ...[istanbulrides.com](https://istanbulrides.com/contact/)
 - 😄 Pronouns: https://istanbulrides.com/istanbul-bursa-transfers/
